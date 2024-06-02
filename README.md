@@ -1,1 +1,1 @@
-# Atividade-Pr-tica-Descomplica
+# Atividade-Pratica-Descomplica
